@@ -1,0 +1,1 @@
+# izuhosuginaka.github.io
